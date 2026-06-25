@@ -8,3 +8,4 @@
 ![](https://media1.tenor.com/m/kof7W_9ZpnAAAAAd/nomnomnami-periwinkle.gif)
 ![](https://external-media.spacehey.net/media/s0CVfbOm4fqK53sQ2o1Xs03GQAssPHRVNqTr0PCoQwD0=/https://dividers.crd.co/assets/images/gallery02/a0fda078.png?v=05d33f91)
 ![](https://pin.it/2ne4Fhjzg)
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31ree5m543w4g2j3htuoj7snz4xe&cover_image=true&theme=default&show_offline=false&background_color=121212&interchange=false&profanity=false&hide_remaster=false&bar_color=be38f3)](https://github.com/kittinan/spotify-github-profile)
