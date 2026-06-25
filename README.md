@@ -6,5 +6,5 @@
 ![](https://64.media.tumblr.com/93495eaaa52b4b5a788e5b952a327a94/54342fb5ebe553f2-11/s500x750/b260af9619e68f4db4d6252b43a4fbd836e49f28.gifv)
 
 ![](https://media1.tenor.com/m/kof7W_9ZpnAAAAAd/nomnomnami-periwinkle.gif)
-![](
+![](https://external-media.spacehey.net/media/s0CVfbOm4fqK53sQ2o1Xs03GQAssPHRVNqTr0PCoQwD0=/https://dividers.crd.co/assets/images/gallery02/a0fda078.png?v=05d33f91)
 ![](https://pin.it/2ne4Fhjzg)
