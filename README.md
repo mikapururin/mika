@@ -2,7 +2,8 @@
 ![](https://external-media.spacehey.net/media/soCBXmqWCN9-D4kR90qINI9MRCZzlnAl8t7WS6lKIvE8=/https://wilardo.crd.co/assets/images/gallery22/47b24a77_original.png?v=883a418d)
 ![](https://media1.tenor.com/m/_SnlwFujjMYAAAAC/hello-charlotte.gif).   
 ![](https://external-media.spacehey.net/media/soCBXmqWCN9-D4kR90qINI9MRCZzlnAl8t7WS6lKIvE8=/https://wilardo.crd.co/assets/images/gallery22/47b24a77_original.png?v=883a418d)
-![](https://external-media.spacehey.net/media/s_PKpytpTdX5vzM7kMl9l9rvYCQ64a9IAqsrJ0PJLYA4=/https://64.media.tumblr.com/b2b2c88dff96ec4dc9a74632776277ef/1d1a397483c48290-64/s2048x3072/25f1782c3faee1d72300f8e0c44aacdfe1aa3f2d.pnj)
+![](https://external-media.spacehey.net/media/sp3qxXHXhv2pX9J0OyxkFMCuN5WMmPCOLzfE0h48myVo=/https://dividers.crd.co/assets/images/gallery03/6a76c447.png?v=05d33f91<img width="500" height="90" alt="image" src="https://github.com/user-attachments/assets/793bf394-224e-4ce4-bedc-f08824602671" />
+)
 ![](https://media1.tenor.com/m/kof7W_9ZpnAAAAAd/nomnomnami-periwinkle.gif)
 ![](https://external-media.spacehey.net/media/sJ5Dloeq3VrHnHH1wji-xp4CzPgaN86ZbMVIshSWb_fI=/https://dividers.crd.co/assets/images/gallery10/710122c4.png?v=05d33f91)
 ![](https://media1.tenor.com/m/xNnW3EQu7UsAAAAd/qqqqq-qq.gif)
